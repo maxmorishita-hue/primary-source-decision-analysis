@@ -36,7 +36,7 @@ Japanese diplomatic communications indicate increasing pressure from
 resource shortages, domestic political expectations, and time constraints
 in negotiations with the United States.
 
-"Source B US Hul Mote"
+"Source B US Hul Note"
 The Government of the United States and the Government of Japan will not
 support any arrangement which would violate the territorial integrity
 or political independence of any nation.
